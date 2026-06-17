@@ -1,2 +1,2 @@
 # Taylorlaurie.com
-Portfolio of Artist TaylorLaurie Harrell
+Portfolio of Artist TaylorLaurie
